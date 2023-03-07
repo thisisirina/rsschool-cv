@@ -1,9 +1,10 @@
 # Irina Alexandrova
-***
 ## Contact Information
 
 **Phone** +7 925 194 29 55
+
 **E-mail** i.alexandrova14@gmail.com
+
 **Telegram** its_irina
 
 ***
